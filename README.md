@@ -1,1 +1,1 @@
-YGP ENTERPRISES Wooden Scrap Website
+ygpenterprise.com
